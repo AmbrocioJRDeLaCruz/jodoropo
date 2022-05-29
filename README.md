@@ -3,5 +3,5 @@
 - Julio Alvarez
 - Hilari Solano
 - Ambrocio de la Cruz
-- Juancarlos
+- Juan Carlos Galvez 20-sisn-2-010
 
